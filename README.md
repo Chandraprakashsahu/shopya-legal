@@ -1,0 +1,1 @@
+# shopya-legal
